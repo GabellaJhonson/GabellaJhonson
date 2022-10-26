@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @GabellaJhonson
-- Am I craze programmer???
+- Am I crazy programmer???
